@@ -1,5 +1,7 @@
 # Practice
-By ANvesh m,dfg,mdfg,.g,. mkndfgjkdfgkj\
+By ANvesh m,dfg,mdfg,.g,.
+knlfgknlgklngh
+nmdgkklndglkklm;
+knjcgbjdgknlgdkl
+lkngknlgkl
 
-dfgmngknldfg
-dfg,m dgkl
